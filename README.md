@@ -91,7 +91,7 @@ into invisible people, it can also do the same to foreigners the greater China b
 to think this is a uniquely American thing. The War Industry, for example, I feel, is much better equipped than most 
 politicians in describing the conditions of conflict as well as be the foundation where execution can launch from. And 
 since the War Industry has to be a shady industry, where press releases are carefully curated, there's a lot left out 
-to be known. In virtually every armed conflict the United States has entered since WW2, a great split, a schism 
+to be known. In virtually every armed conflict the United States entered since WW2, a great split, a schism 
 if I were to use religious terms, occurs in the host nation of the conflict and the people there have to go about these 
 usually twisted ways of reconciliation that tries not to rely so much on American authority. In defense though, industry 
 cannot be a blanket cure for another nation. Industry can help another nation or wannabe nation in their nations. The 
