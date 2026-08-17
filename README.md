@@ -80,7 +80,7 @@ smaller for some people, such as myself. See the [second article](https://github
 in this series for what I had to think on the small-world psychological phenomenon I was/am experiencing. 
 
 **On the matter of political extremism, I wonder when the Chinese Hero will set out on his mission.** And I don't mean 
-the mission where he goes around, showering gifts onto foreigners, making people rich, offering them homes, giving out 
+the mission where he goes around showering gifts onto foreigners, making people rich, offering them homes, giving out 
 free Chinese tea for the masses. I mean something like what some of the fucking Jihadists did since 9/11. See...Chinese 
 don't do that. Chinese culture does not cultivate that kind of zero-sum bullshit. On the one hand, it is actually 
 praiseworthy. But it also speaks a lot to the agenda of trade war/lawfare that compensates for the pacifistic 
