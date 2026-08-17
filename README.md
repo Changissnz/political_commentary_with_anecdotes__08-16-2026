@@ -57,7 +57,7 @@ bullshit concerning the United States. Back during my college years, I thought t
 because it elucidated on the deficits of living in black ghettos, albeit using inaccurate stereotypy often, and because 
 it had original character to it that does not try to mask matters so much like how poisonous progressive politics does, 
 which oftentimes is like preaching to certain Caucasians to use a polite and elegant and considerate tone of voice while 
-enabling them to commit atrocities, nevertheless. I still would think The Boondocks, but not in a euphoric way, full of life 
+enabling them to commit atrocities, nevertheless. I still would think The Boondocks is funny, but not in a euphoric way, full of life 
 and innocence, as I did in the past. I'll stop there because I know things are actually not that great over in the European 
 continents right now. Melting pot politics can be very disappointing because, and I don't want to think this applies 
 specifically to me, the stage gets set for people to get together and exchange. But the stage depends on "institutions" 
