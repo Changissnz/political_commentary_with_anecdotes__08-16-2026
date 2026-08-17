@@ -92,9 +92,9 @@ to think this is a uniquely American thing. The War Industry, for example, I fee
 politicians in describing the conditions of conflict as well as be the foundation where execution can launch from. And 
 since the War Industry has to be a shady industry, where press releases are carefully curated, there's a lot left out 
 to be known. In virtually every armed conflict the United States entered since WW2, a great split, a schism 
-if I were to use religious terms, occurs in the host nation of the conflict and the people there have to go about these 
+if I were to use religious terms, remained in the host nation after the conflict and the people there have to go about these 
 usually twisted ways of reconciliation that tries not to rely so much on American authority. In defense though, industry 
-cannot be a blanket cure for another nation. Industry can help another nation or wannabe nation in their nations. The 
+cannot be a blanket cure for another nation. Industry can help another nation or wannabe nation in their interests. The 
 trade might fizzle out. Policy might change, public opinion might sour. There's a whole host of problems. The commercial 
 nature of the United States and its unorthodox economics was and is a source of great frustration for rival nations. 
 Imperial Japan despised the United States in the lead-up to WW2 because the Japanese saw a schizophrenic nation, with 
